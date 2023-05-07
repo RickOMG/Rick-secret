@@ -1,2 +1,4 @@
 # 禁止抄袭！
-抄袭者我半夜顺着网线去偷马桶盖！！！
+# PlAGIARISM IS PROHIBITED!
+抄袭者我半夜顺着网线去偷你家马桶盖！！！
+WHOEVER PLAGIARIZES ME ,I WILL FIGHT TO THE END!!!
